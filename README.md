@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @8ANGELA8
 - 👀 I’m interested in everything related to AI
-- 🌱 I’m currently learning how to improve my knowledge on this matter
+- 🌱 I’m currently learning how to improve my knowledge on AI
 - 💞️ I’m looking to collaborate on projects and partnerships 
 - 📫 How to reach me: just text me!
 - 😄 Pronouns: ANG/ELA
